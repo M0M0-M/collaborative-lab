@@ -1,2 +1,2 @@
 Team lead: Moses Mwale
-Team lead: Kunda Nakazwe Mwandu"
+Team lead: Kunda Nakazwe Mwandu
